@@ -1,2 +1,0 @@
-SADASDAWSDASDASASDDDDDDDDDDDD
-degisiklik yapildi
